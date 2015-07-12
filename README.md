@@ -1,2 +1,2 @@
 # ccReplica
-kasnije
+Opis [ kad napravim ]
